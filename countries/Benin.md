@@ -1,14 +1,14 @@
 ##Benin
-## population
+11.18 Million population
 
 
-## capital
+Porto-Novo capital
 
  
-## official language
+French official language
 
 
-## interesting trivia
+Birth place of vodun (or voodoo) religion interesting trivia
 
 
 
